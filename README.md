@@ -1,5 +1,5 @@
-# **Đây là Repo vui không có mục đích khác**
-*Vui lòng không reup Repositories này. Cảm ơn đã hợp tác!*
+# **⚠️⚠️⚠️Đây là Repo vui không có mục đích khác⚠️⚠️⚠️**
+##### *❗Vui lòng không reup Repositories này.*
 - My Contacts:
   - *****[Facebook](https://facebook.com/truongconguoc35)*****
   - *****[Mail](truongconguoc35@yandex.com)*****
